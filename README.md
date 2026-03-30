@@ -1,0 +1,1 @@
+# guiapratico_carreiraqa_dio
